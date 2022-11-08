@@ -1,1 +1,0 @@
-# Medicine_Store_Os_Project_Ubuntu
